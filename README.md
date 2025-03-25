@@ -55,4 +55,4 @@ I'm always interested in discussing innovative geospatial projects, technical ch
 
 ---
 
-*"The best way to predict the future is to create it." - Abraham Lincoln*
+*"Everything is connected.  Everything changes.  Pay attention"*
